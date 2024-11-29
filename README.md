@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **vedantbhalerao315@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1WuCaptdSOMqMGbCwX6padNUkUAaSx7Rh/view?usp=drive_link](https://drive.google.com/file/d/1WuCaptdSOMqMGbCwX6padNUkUAaSx7Rh/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1-jYRgEpXrHVX75GsL_y4Qeb7BDcNMbnr/view?usp=sharing](https://drive.google.com/file/d/1-jYRgEpXrHVX75GsL_y4Qeb7BDcNMbnr/view?usp=sharing)
 
 - ⚡ Fun fact **I can help fix your problems ;)**
 
